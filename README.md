@@ -4,4 +4,4 @@
 4. 👀 I am looking for opportunity in Data Analysis and Data Science
 5. 🌱 I’m continuously improving data skills by learning new techniques in Data Field
 6. 👩🏻‍🎓 I am doing  my Data Analyst training with Open Class Rooms
-7. 👩🏻‍💻 LinkedIn -
+7. 👩🏻‍💻 LinkedIn -https://www.linkedin.com/in/manu-sharma-04011994/
